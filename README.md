@@ -1,0 +1,1 @@
+Repositář pro bakalářskou práci 
